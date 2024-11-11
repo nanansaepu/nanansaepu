@@ -1,0 +1,1 @@
+- 👋 Hi, I’m @nanansaepu i'am new on github and programming
